@@ -1,5 +1,5 @@
 # 💫 About Me:
-👩🏻‍💻Tech enthusiast diving into the world of technology!<br>👩🏻‍🎓Studying BCA at GGSIPU, Dwarka<br>🌷Eager to collaborate, grow, and make a positive impact<br>💭Currently learning about Web Development!
+👩🏻‍💻Tech enthusiast diving into the world of technology!<br>👩🏻‍🎓BCA Graduate(2025) from GGSIPU, Dwarka<br>🌷Eager to collaborate, grow, and make a positive impact<br>💭Currently learning about Web Development!
 
 
 ## 🌐 Socials:
